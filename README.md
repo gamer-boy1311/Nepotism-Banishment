@@ -1,0 +1,2 @@
+# Nepotism-Banishment
+Doctor Mark C. Pedersen, a relative of Dr. Lacey Pedersen, has conveyed an indepth disgust of this "PPP" to the staffers of Dr. Lacey's grouping of internal mastery characters. This morning, the PPP liste of whistleblower acts was reviewed, and cited by staff in agreement as a whole that it need further depth of banishment prescription for EEOA to fully become an overall action or cause of the U.S.A. 
